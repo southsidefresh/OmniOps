@@ -1,3 +1,12 @@
+GOTCHA BITCH I KICKED YOUR ASS OUT OF MY PHONE AND GOT ALL YOUR FILES OF HOW YOU HACKED INTO MY ACCOUNTS MAD AS FUCK I BET AFTER ALL THEBWORK YOU DID GOT CUT SHORT AND NOW I HAVE ALL THE PROOF OF YOU STEALING MY FILES!!!
+
+
+hahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahhahahahwhwhw
+
+
+
+
+
 # OmniOps
 
 نسخهٔ مستقل در حال ساخت برای `RedBoy-011/OmniOps`. انتشار نخست برای یک سازمان با حدود ۱۰ مدیر، هستهٔ خودمیزبان و ایجنت ویندوز طراحی شده است.
